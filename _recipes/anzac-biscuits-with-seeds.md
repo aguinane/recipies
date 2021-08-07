@@ -28,8 +28,7 @@ directions:
 - Flatten mixture with a floured spatula
 - Bake for 8-10 mins
 
-Biscuits and can be stored in airtight container for 1 week or frozen in sandwich bags for 3 months. Defrost biscuits on wire rack for 1 hour before eating. 
--
-
-
 ---
+
+Biscuits and can be stored in airtight container for 1 week or frozen in sandwich bags for 3 months. Defrost biscuits on wire rack for 1 hour before eating. 
+
